@@ -1,2 +1,3 @@
 # ★ my name is woo seoyeon.  
-☆ I like sanrio characters.
+☆ I like sanrio characters.  
+★ 
